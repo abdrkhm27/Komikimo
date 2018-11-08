@@ -1,0 +1,2 @@
+# Komikimo
+Sticker Cute Jowo
